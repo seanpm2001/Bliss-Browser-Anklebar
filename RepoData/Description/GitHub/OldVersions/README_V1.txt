@@ -1,0 +1,1 @@
+🌳️🌐️🧰️💾️ Bliss Browser Anklebar is a joke program for the Bliss Web Browser, which will consistently spawn more and more toolbars until disabled. Now you too can have toolbars all the way down to your ankles.
